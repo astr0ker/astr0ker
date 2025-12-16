@@ -1,16 +1,21 @@
-## Hi there 👋
+![Без названия](https://github.com/user-attachments/assets/466bc64e-6e6f-4024-a90b-00e0c2bdaacf)
 
-<!--
-**astr0ker/astr0ker** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+‿”  hewwoo im so kind btw
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+IM ALWAYS HAPPY TO MAKE NEW FRIENDS but aah my bag eng  : (
+
+c*h free , int , dont need 2 ask and srry if afk w2i
+
+
+
+
+
+
+![Без названия](https://github.com/user-attachments/assets/09d5e51d-5b3f-477d-8644-53fb703ade50)
+
+
+‿” DNI: base and former friends
+
+
+![Без названия (1)](https://github.com/user-attachments/assets/e2e94217-a06a-46c3-9f08-aacd10c6705a)
