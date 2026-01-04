@@ -32,5 +32,6 @@ c*h free , int , dont need 2 ask and srry if afk w2i
 
 
 <p align="center">
-<img width="292" height="292" alt="New Drawing7" src="https://github.com/user-attachments/assets/17719fe6-1fcb-4ca6-b707-4a6f669013e4" />       :3
+<img width="292" height="292" alt=<img width="1920" height="1080" alt="New Drawing7 (1)" src="https://github.com/user-attachments/assets/28b6ceaa-7913-4c6a-855c-462c41e99a49" />
+ />       :3
 
