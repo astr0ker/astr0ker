@@ -1,10 +1,20 @@
-![Без названия](https://github.com/user-attachments/assets/466bc64e-6e6f-4024-a90b-00e0c2bdaacf)
+<p align="center"> <sub> rmk readme soon. wip </sub> </p>
+
+<p align="center">
+----------
+</p>
+
+<p align="center">
+  
 
 
+
+
+<p align="center">
 ‿”  hewwoo im so kind btw
-
+<p align="center">
 IM ALWAYS HAPPY TO MAKE NEW FRIENDS but aah my bag eng  : (
-
+<p align="center">
 c*h free , int , dont need 2 ask and srry if afk w2i
 
 
@@ -12,10 +22,15 @@ c*h free , int , dont need 2 ask and srry if afk w2i
 
 
 
-![Без названия](https://github.com/user-attachments/assets/09d5e51d-5b3f-477d-8644-53fb703ade50)
+
+<img width="1920" height="1080" alt="New Drawing6 (1)" src="https://github.com/user-attachments/assets/44ba9bf1-e7af-4dee-844e-4cb05c7c0cc5" />
 
 
+<p align="center">
 ‿” DNI: base and former friends
 
 
-![Без названия (1)](https://github.com/user-attachments/assets/e2e94217-a06a-46c3-9f08-aacd10c6705a)
+
+<p align="center">
+<img width="292" height="292" alt="New Drawing7" src="https://github.com/user-attachments/assets/17719fe6-1fcb-4ca6-b707-4a6f669013e4" />       :3
+
