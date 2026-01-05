@@ -16,6 +16,8 @@
 IM ALWAYS HAPPY TO MAKE NEW FRIENDS but aah my bag eng  : (
 <p align="center">
 c*h free , int , dont need 2 ask and srry if afk w2i
+<p align="center">
+BIG FAN of bloxnoli n noli666 !!!
 
 
 
@@ -31,7 +33,7 @@ c*h free , int , dont need 2 ask and srry if afk w2i
 
 
 
+![photo_2026-01-05_22-15-17](https://github.com/user-attachments/assets/b142d733-71dc-4da2-aa77-5c8569565299)
 <p align="center">
-<img width="292" height="292" alt=<img width="1920" height="1080" alt="New Drawing7 (1)" src="https://github.com/user-attachments/assets/28b6ceaa-7913-4c6a-855c-462c41e99a49" />
-        :]
+:]
 
