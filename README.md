@@ -15,7 +15,7 @@
 <p align="center">
 IM ALWAYS HAPPY TO MAKE NEW FRIENDS but aah my bag eng  : (
 <p align="center">
-c*h free , int , dont need 2 ask and srry if afk w2i
+c*h , int , dont need 2 ask and srry if afk w2i
 <p align="center">
 BIG FAN of bloxnoli n noli666 !!!
 
