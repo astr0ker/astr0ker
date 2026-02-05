@@ -9,7 +9,7 @@
 ------------------------------
 </p>
   <p align="center">
-‿”  hewwoo im so kind btw
+‿”  hewwoo im so friendly btw
 <p align="center">
 IM ALWAYS HAPPY TO MAKE NEW FRIENDS but aah my bag eng  : (
 <p align="center">
