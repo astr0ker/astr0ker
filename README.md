@@ -11,10 +11,8 @@
   <p align="center">
 ‿”  hewwoo im so friendly btw
 <p align="center">
-IM ALWAYS HAPPY TO MAKE NEW FRIENDS but aah my bag eng  : (
+c*h , int , dont need 2 ask ‘‸‘
 <p align="center">
-c*h , int , dont need 2 ask and srry if afk w2i
-<p align="center">
-BIG FAN of bloxnoli n noli666 !!!
+BIG FAN of bloxnoli n noli666 !!! (hjd)
 <p align="center">
 ‿” DNI: base and former friends
