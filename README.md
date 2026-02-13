@@ -17,7 +17,7 @@ ____
   
 ____
 
-　　　　　　　　　　　　　　　<img width="600" height="600" alt="Без названия37_20260213210943" src="https://github.com/user-attachments/assets/9f3e5875-9c9f-4b59-8d27-54059062d16e" />
+　　　　　　　　　　　　　<img width="600" height="600" alt="Без названия37_20260213210943" src="https://github.com/user-attachments/assets/9f3e5875-9c9f-4b59-8d27-54059062d16e" />
 
 
 ____
