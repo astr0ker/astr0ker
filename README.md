@@ -1,6 +1,6 @@
 <p align="center"> $\color{#666}{\textsf{hmm}}$
 
-　　　　　　　![photo_2026-02-14_13-46-18](https://github.com/user-attachments/assets/dc834abc-0db3-4641-8b53-80af7767165a)
+　　　　　　　![photo_2026-02-14_13-46-18](https://github.com/user-attachments/assets/a36c969a-4e4c-41ee-beb6-4cc58e06f979)
 　
 
 ____
@@ -17,7 +17,7 @@ ____
   
 ____
 
-　　　　　　　　　　　<img width="600" height="600" alt="Без названия37_20260213210943" src="https://github.com/user-attachments/assets/9f3e5875-9c9f-4b59-8d27-54059062d16e" />
+　　　　　　　　　　　<img width="600" height="600" src="https://github.com/user-attachments/assets/10827980-56e1-484c-b20a-dbe0dd7e2558" />
 
 
 ____
