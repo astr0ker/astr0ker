@@ -1,7 +1,7 @@
 <p align="center"> $\color{#666}{\textsf{hmm}}$
 
-　　　　　　　　![1a97e5e71b485ad933b2799805053681](https://github.com/user-attachments/assets/2f5b0a16-5113-4b63-bcdd-dad37f5215f1)
-
+　　　　　　　![photo_2026-02-14_13-46-18](https://github.com/user-attachments/assets/dc834abc-0db3-4641-8b53-80af7767165a)
+　
 
 ____
 
