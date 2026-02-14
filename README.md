@@ -32,6 +32,6 @@ ____
 　　　　　　　　　　　　　　　　　　<img width="400" height="400" src="https://github.com/user-attachments/assets/3c102320-9f72-44f0-8a8c-938daf7db730" />
 
 
-<p align="center"> $\color{#F00}{\textsf{‿” DNI: base and former friends}}$ 
+<p align="center"> $\color{#F00}{\textsf{‿” DNI: proshippers , darkshippers and former friends}}$ 
 
 
