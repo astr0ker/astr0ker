@@ -21,11 +21,16 @@ ____
 
 
 ____
- 
+
+ <p align="center"> $\color{#80F}{\textsf{ru/eng}}$ 
 <p align="center"> $\color{#80F}{\textsf{‿”  ehllo im so friendly btw}}$ 
 <p align="center"> $\color{#80F}{\textsf{c*h , int , dont need 2 ask !!}}$ 
 <p align="center"> $\color{#80F}{\textsf{BIG FAN of bloxnoli n noli666 (hjd) , eddtord (eddsworld) , and dreamquasis (dreamSMP) !!!}}$ 
+
+____
  
+　　　　　　　　　　　　　　　　　　<img width="400" height="400" src="https://github.com/user-attachments/assets/3c102320-9f72-44f0-8a8c-938daf7db730" />
+
 
 <p align="center"> $\color{#F00}{\textsf{‿” DNI: base and former friends}}$ 
 
