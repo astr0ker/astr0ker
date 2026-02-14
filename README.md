@@ -1,6 +1,6 @@
 <p align="center"> $\color{#666}{\textsf{hmm}}$
 
-　　　　　　 　　　　　　![90f1648e3259ded26d63edd48a1804ea](https://github.com/user-attachments/assets/4263c2af-039e-43b7-b5ca-7675a214dbeb)
+　　　　　　 　　　　　　![1a97e5e71b485ad933b2799805053681](https://github.com/user-attachments/assets/2f5b0a16-5113-4b63-bcdd-dad37f5215f1)
 
 
 ____
@@ -24,7 +24,7 @@ ____
  
 <p align="center"> $\color{#80F}{\textsf{‿”  ehllo im so friendly btw}}$ 
 <p align="center"> $\color{#80F}{\textsf{c*h , int , dont need 2 ask !!}}$ 
-<p align="center"> $\color{#80F}{\textsf{BIG FAN of bloxnoli n noli666 (hjd)}}$ 
+<p align="center"> $\color{#80F}{\textsf{BIG FAN of bloxnoli n noli666 (hjd) , eddtord (eddsworld) , and dreamquasis (dreamSMP) !!!}}$ 
  
 
 <p align="center"> $\color{#F00}{\textsf{‿” DNI: base and former friends}}$ 
