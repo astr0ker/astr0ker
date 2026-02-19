@@ -17,11 +17,6 @@ ____
   
 ____
 
-　　　　　　　　　　　<img width="600" height="600" src="https://github.com/user-attachments/assets/10827980-56e1-484c-b20a-dbe0dd7e2558" />
-
-
-____
-
  <p align="center"> $\color{#80F}{\textsf{ru/eng}}$ 
 <p align="center"> $\color{#80F}{\textsf{‿”  ehllo im so friendly btw}}$ 
 <p align="center"> $\color{#80F}{\textsf{c*h , int , dont need 2 ask !!}}$ 
@@ -29,9 +24,6 @@ ____
 
 ____
  
-　　　　　　　　　　　　　　　　　　<img width="400" height="400" src="https://github.com/user-attachments/assets/3c102320-9f72-44f0-8a8c-938daf7db730" />
-
-
 <p align="center"> $\color{#F00}{\textsf{‿” DNI: proshippers , darkshippers and former friends}}$ 
 
 
