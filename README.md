@@ -1,7 +1,10 @@
 <p align="center"> $\color{#666}{\textsf{hmm}}$
 
-　　　　　　　![photo_2026-02-14_13-46-18](https://github.com/user-attachments/assets/a36c969a-4e4c-41ee-beb6-4cc58e06f979)
-　
+
+
+　　　　　　　 　　　　　　　　　　　　　　　　　　　　　　　　[cool infry](https://github.com/user-attachments/assets/a4b799b3-8e95-4631-99f5-1bc3b247c60a)
+
+
 
 ____
 
@@ -23,6 +26,8 @@ ____
 <p align="center"> $\color{#80F}{\textsf{BIG FAN of bloxnoli n noli666 (hjd) , eddtord (eddsworld) , and dreamquasis (dreamSMP) !!!}}$ 
 
 ____
+
+
  
 <p align="center"> $\color{#F00}{\textsf{‿” DNI: proshippers , darkshippers and former friends}}$ 
 
