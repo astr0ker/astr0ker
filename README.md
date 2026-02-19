@@ -1,11 +1,5 @@
 <p align="center"> $\color{#666}{\textsf{hmm}}$
 
-
-
-　　　　　　　 　　　　　　　　　　　　　　　　　　　　　　　　[cool infry](https://github.com/user-attachments/assets/a4b799b3-8e95-4631-99f5-1bc3b247c60a)
-
-
-
 ____
 
 <p align="center"> $\color{#80F}{\textsf{and jane ! you early , your life's work is dirtied by the}}$ 
@@ -26,6 +20,10 @@ ____
 <p align="center"> $\color{#80F}{\textsf{BIG FAN of bloxnoli n noli666 (hjd) , eddtord (eddsworld) , and dreamquasis (dreamSMP) !!!}}$ 
 
 ____
+
+
+
+https://github.com/user-attachments/assets/56a45a21-def1-49e9-9c99-b1f6b7426df1
 
 
  
