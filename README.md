@@ -26,6 +26,6 @@ ____
 
 
  
-<p align="center"> $\color{#F00}{\textsf{‿” DNI: proshippers , darkshippers , selfshippers , yumeshippers and former friends}}$ 
+<p align="center"> $\color{#F00}{\textsf{‿” DNI: proshippers , darkshippers , yumeshippers and former friends}}$ 
 
 
