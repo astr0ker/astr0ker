@@ -2,31 +2,30 @@
 
 ____
 
-<p align="center"> $\color{#80F}{\textsf{and jane ! you early , your life's work is dirtied by the}}$ 
- <p align="center"> $\color{#80F}{\textsf{fools ,}}$ 
- <p align="center"> $\color{#80F}{\textsf{who adore you}}$ 
- <p align="center"> $\color{#80F}{\textsf{only to find , only to find you out . .}}$ 
- <p align="center"> $\color{#80F}{\textsf{they saw you}}$ 
- <p align="center"> $\color{#80F}{\textsf{dressing in the backroom}}$ 
- <p align="center"> $\color{#80F}{\textsf{now they'll pay !! what they owe you}}$ 
- <p align="center"> $\color{#80F}{\textsf{it's only small change ,}}$ 
- <p align="center"> $\color{#80F}{\textsf{red on the green green grass . ./.lyr}}$ 
+<p align="center"> $\color{#F00}{\textsf{transgender girls want to love each other}}$ 
+ <p align="center"> $\color{#F00}{\textsf{transgender girls all hate themselves}}$ 
+ <p align="center"> $\color{#F00}{\textsf{transgender girls all hate each other}}$ 
+ <p align="center"> $\color{#F00}{\textsf{i wish trans girls could love themselves}}$ 
+
   
 ____
 
- <p align="center"> $\color{#80F}{\textsf{ru/eng}}$ 
-<p align="center"> $\color{#80F}{\textsf{‿”  ehllo im so friendly btw}}$ 
-<p align="center"> $\color{#80F}{\textsf{c*h , int , dont need 2 ask !!}}$ 
-<p align="center"> $\color{#80F}{\textsf{BIG FAN of bloxnoli n noli666 (hjd) , eddtord (eddsworld) , and dreamquasis (dreamSMP) !!!}}$ 
+ <p align="center"> $\color{#F00}{\textsf{ru/eng}}$ 
+<p align="center"> $\color{#F00}{\textsf{‿”  ehllo im so friendly btw}}$ 
+<p align="center"> $\color{#F00}{\textsf{c*h , int , dont need 2 ask !!}}$ 
+<p align="center"> $\color{#F00}{\textsf{BIG FAN of bloxnoli n noli666 (hjd) , eddtord (eddsworld) , and dreamquasis (dreamSMP) !!!}}$ 
 
 ____
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=.+.+.+why've+you+been+in+here;all+this+time?&color=FF0000)](https://git.io/typing-svg)
 
 
-https://github.com/user-attachments/assets/56a45a21-def1-49e9-9c99-b1f6b7426df1
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![_;D](https://github.com/user-attachments/assets/a84044a2-ade1-4e58-8c54-3d1e479cba5c)
+
 
 
  
-<p align="center"> $\color{#F00}{\textsf{‿” DNI: proshippers , darkshippers and former friends}}$ 
+<p align="center"> $\color{#F00}{\textsf{‿” DNI: proshippers , darkshippers , selfshippers and former friends}}$ 
 
 
