@@ -13,7 +13,7 @@ ____
  <p align="center"> $\color{#F00}{\textsf{ru/eng}}$ 
 <p align="center"> $\color{#F00}{\textsf{‿”  ehllo im so friendly btw}}$ 
 <p align="center"> $\color{#F00}{\textsf{c*h , int , dont need 2 ask !!}}$ 
-<p align="center"> $\color{#F00}{\textsf{BIG FAN of bloxnoli n noli666 (hjd) , eddtord (eddsworld) , and dreamquasis (dreamSMP) !!!}}$ 
+<p align="center"> $\color{#F00}{\textsf{BIG FAN of bloxnoli n noli666 (hjd) , eddtord (eddsworld) , dreamquasis (dreamSMP) and twotag (tpot) !!!}}$ 
 
 ____
 
