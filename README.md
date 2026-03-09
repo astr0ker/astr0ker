@@ -2,18 +2,18 @@
 
 ____
 
-<p align="center"> $\color{#F00}{\textsf{transgender girls want to love each other}}$ 
- <p align="center"> $\color{#F00}{\textsf{transgender girls all hate themselves}}$ 
- <p align="center"> $\color{#F00}{\textsf{transgender girls all hate each other}}$ 
- <p align="center"> $\color{#F00}{\textsf{i wish trans girls could love themselves}}$ 
+<p align="center"> $\color{#F00}{\textsf{i know i⠀,}}$ 
+ <p align="center"> $\color{#F00}{\textsf{when i die}}$ 
+ <p align="center"> $\color{#F00}{\textsf{i'm not scared⠀,}}$ 
+ <p align="center"> $\color{#F00}{\textsf{i'll be fine}}$ 
 
   
 ____
 
  <p align="center"> $\color{#F00}{\textsf{ru/eng}}$ 
 <p align="center"> $\color{#F00}{\textsf{‿”  ehllo im so friendly btw}}$ 
-<p align="center"> $\color{#F00}{\textsf{c*h , int , dont need 2 ask !!}}$ 
-<p align="center"> $\color{#F00}{\textsf{BIG FAN of bloxnoli n noli666 (hjd) , eddtord (eddsworld) , dreamquasis (dreamSMP) and twotag (tpot) !!!}}$ 
+<p align="center"> $\color{#F00}{\textsf{c*h⠀, int⠀, dont need 2 ask !!}}$ 
+<p align="center"> $\color{#F00}{\textsf{BIG FAN of bloxnoli n noli666 (hjd)⠀,⠀eddtord (eddsworld)⠀,⠀dreamquasis (dreamSMP) and twotag (tpot) !!!}}$ 
 
 ____
 
