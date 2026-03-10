@@ -4,17 +4,29 @@
 $\color{#666}{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀pricetag №1 fan!!!!!!!!}}$
 ----
 
-<p align="center"> $\color{#F00}{\textsf{i know i⠀,}}$ 
- <p align="center"> $\color{#F00}{\textsf{when i die}}$ 
- <p align="center"> $\color{#F00}{\textsf{i'm not scared⠀,}}$ 
- <p align="center"> $\color{#F00}{\textsf{i'll be fine}}$ 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#F00}{\textsf{i know i⠀,}}$ 
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#F00}{\textsf{when i die}}$ 
+
+ 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  $\color{#F00}{\textsf{i'm not scared⠀,}}$ 
+
+  
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#F00}{\textsf{i'll be fine}}$ 
 
   
 ____
 
- <p align="center"> $\color{#F00}{\textsf{ru/eng}}$ 
-<p align="center"> $\color{#F00}{\textsf{‿”  ehllo im so friendly btw}}$ 
-<p align="center"> $\color{#F00}{\textsf{c*h⠀, int⠀, dont need 2 ask !!}}$ 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#F00}{\textsf{ru/eng}}$ 
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#F00}{\textsf{‿”  ehllo im so friendly btw}}$ 
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#F00}{\textsf{c*h⠀, int⠀, dont need 2 ask !!}}$ 
+
+ 
 <p align="center"> $\color{#F00}{\textsf{BIG FAN of bloxnoli n noli666 (hjd)⠀,⠀eddtord (eddsworld)⠀,⠀dreamquasis (dreamSMP) and twotag (tpot) !!!}}$ 
 
 ____
@@ -23,7 +35,7 @@ ____
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![_;D](https://github.com/user-attachments/assets/a84044a2-ade1-4e58-8c54-3d1e479cba5c)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![_;D](https://github.com/user-attachments/assets/a84044a2-ade1-4e58-8c54-3d1e479cba5c)⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
 
