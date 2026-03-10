@@ -16,7 +16,9 @@ $\color{#666}{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀�
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#F00}{\textsf{i'll be fine}}$ 
 
   
-____
+<img width="1470" height="1176" alt="image" src="https://github.com/user-attachments/assets/6d677bcf-b1fd-4d22-9c97-17eb82cb9c41" />
+
+<p align="center"> $\color{#666}{\textsf{omg its TWOTAG!!!!1!!1!!!!11}}$
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#F00}{\textsf{ru/eng}}$ 
 
@@ -28,19 +30,16 @@ ____
 
  
 <p align="center"> $\color{#F00}{\textsf{BIG FAN of bloxnoli n noli666 (hjd)⠀,⠀eddtord (eddsworld)⠀,⠀dreamquasis (dreamSMP) and twotag (tpot) !!!}}$ 
-
-____
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=.+.+.+why've+you+been+in+here;all+this+time?&color=FF0000)](https://git.io/typing-svg)
 
 
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="1470" height="1456" alt="image" src="https://github.com/user-attachments/assets/86da0803-cb98-486d-a3cf-ced87cd3b836" />
-⠀⠀⠀⠀⠀⠀⠀⠀
-
-
-
- 
+ ----
 <p align="center"> $\color{#F00}{\textsf{‿” DNI: proshippers , darkshippers , yumeshippers and former friends}}$ 
 
 
