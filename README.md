@@ -1,6 +1,8 @@
 <p align="center"> $\color{#666}{\textsf{hmm}}$
 
-____
+
+$\color{#666}{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀pricetag №1 fan!!!!!!!!}}$
+----
 
 <p align="center"> $\color{#F00}{\textsf{i know i⠀,}}$ 
  <p align="center"> $\color{#F00}{\textsf{when i die}}$ 
