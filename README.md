@@ -35,7 +35,7 @@ ____
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="735" height="728" alt="image" src="https://github.com/user-attachments/assets/86da0803-cb98-486d-a3cf-ced87cd3b836" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="1470" height="1456" alt="image" src="https://github.com/user-attachments/assets/86da0803-cb98-486d-a3cf-ced87cd3b836" />
 ⠀⠀⠀⠀⠀⠀⠀⠀
 
 
