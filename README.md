@@ -16,7 +16,7 @@ $\color{#666}{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀�
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#F00}{\textsf{i'll be fine}}$ 
 
   
-<img width="1470" height="1176" alt="image" src="https://github.com/user-attachments/assets/6d677bcf-b1fd-4d22-9c97-17eb82cb9c41" />
+<img width="1920" height="1080" alt="TWOTAGG" src="https://github.com/user-attachments/assets/d6d5c8bd-0636-4d19-8c3b-112b78aed151" />
 
 <p align="center"> $\color{#666}{\textsf{omg its TWOTAG!!!!1!!1!!!!11}}$
 
