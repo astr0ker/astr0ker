@@ -42,6 +42,6 @@ $\color{#3e3031}{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀�
 
 
  ----
-<p align="center"> $\color{#ff4f4e}{\textsf{‿” DNI: proshippers , darkshippers , yumeshippers and former friends}}$ 
+<p align="center"> $\color{#ff4f4e}{\textsf{‿” DNI: proshippers , darkshippers , avid yumeshippers and former friends}}$ 
  
 ![Без названия (5)](https://github.com/user-attachments/assets/504c419d-a9bd-4cd1-ab06-668b7367ff98) ![Без названия (6)](https://github.com/user-attachments/assets/956e1139-f90e-4021-8381-8f40eeded12a)
