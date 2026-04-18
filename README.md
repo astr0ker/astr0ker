@@ -5,8 +5,8 @@ $\color{#3e3031}{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀�
 ----
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://komarev.com/ghpvc/?username=astr0ker&color=9d6226&style=flat-square&label=contestants&abbreviated=true" />
 
-<p align="center">$\color{#713b14}{\textsf{so i try to laugh about it , cover it all up the lies}}$ 
-<p align="center">$\color{#9d6226}{\textsf{i try to laugh about it}}$ 
+<p align="center">$\color{#713b14}{\textsf{i tried to laugh about it , cover it all up with lies}}$ 
+<p align="center">$\color{#9d6226}{\textsf{i tried to laugh about it}}$ 
 <p align="center">$\color{#431b12}{\textsf{hiding the tears in my eyes , 'cause boys don't cry}}$ 
 <p align="center">$\color{#fee773}{\textsf{boys don't cry ..}}$ 
 
