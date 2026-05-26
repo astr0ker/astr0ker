@@ -1,9 +1,11 @@
 <p align="center"> $\color{#3e3031}{\textsf{hmm}}$
 
 
-$\color{#3e3031}{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀toasty №1 fan!!!!!!!!}}$
-----
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://komarev.com/ghpvc/?username=astr0ker&color=9d6226&style=flat-square&label=contestants&abbreviated=true" />
+<p align="center">$\color{#3e3031}{\textsf{toasty №1 fan!!!!!!!!}}$
+  
+<p align="center">$\color{#292f37}{\textsf{I'll be changing readme soon}}$ $\color{#98d6b6}{\textsf{ (°ー°〃) }}$
+
+<p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=9d6226&style=flat-square&label=contestants&abbreviated=true" />
 
 <p align="center">$\color{#713b14}{\textsf{so i try to laugh about it , cover it all up with lies}}$ 
 <p align="center">$\color{#9d6226}{\textsf{i try to laugh about it}}$ 
@@ -14,25 +16,21 @@ $\color{#3e3031}{\textsf{⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀�
 <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/e3d8fe7b-16a4-4b96-870f-e8c84b7f7743" />
 
 
-<p align="center"> $\color{#3e3031}{\textsf{the yaoi become toxic bro🤣so lmao bahaha}}$
+<p align="center"> $\color{#3e3031}{\textsf{the yaoi become toxic bro🤣so lmao bahaha im so funny}}$
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#9d6226}{\textsf{ru/eng}}$ 
-
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#713b14}{\textsf{‿”  ehllo im the fucking fan of the object shows👀👀}}$ 
+<p align="center"> $\color{#9d6226}{\textsf{ru/eng}}$ 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $\color{#fee773}{\textsf{c*h⠀, int⠀, dont need 2 ask !!}}$ 
+<p align="center"> $\color{#713b14}{\textsf{‿”  ehllo im the fucking fan of the object shows👀👀}}$ 
+
+
+<p align="center"> $\color{#fee773}{\textsf{c*h⠀, int⠀, dont need 2 ask !!}}$ 
 
  
-<p align="center"> $\color{#431b12}{\textsf{BIG FAN of bloxnoli n noli666 (hjd)⠀,⠀eddtord (eddsworld)⠀,⠀dreamquasis (dreamSMP) , twotag (tpot) n toastyhouse (ORBIT) !!!}}$ 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+<p align="center"> $\color{#431b12}{\textsf{BIG FAN of bloxnoli n noli666 (hjd) , eddtord (eddsworld) , dreamquasis (dreamSMP) , twotag (tpot) n toastyhouse (ORBIT) !!!}}$ 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=i+didn't+think+you+needed+to+know;was+i+supposed+to+tell+you?&color=713b14)](https://git.io/typing-svg)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=i+didn't+think+you+needed+to+know;was+i+supposed+to+tell+you?&color=713b14)](https://git.io/typing-svg)
 
 
  ----
