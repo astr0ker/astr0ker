@@ -1,8 +1,3 @@
-<p align="center"> $\color{#3e3031}{\textsf{hmm}}$
-
-
-<p align="center">$\color{#3e3031}{\textsf{toasty №1 fan!!!!!!!!}}$
-  
 <p align="center">$\color{#292f37}{\textsf{i'll be changing readme soon}}$ $\color{#98d6b6}{\textsf{ (°ー°〃) }}$
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=9d6226&style=flat-square&label=contestants&abbreviated=true" />
