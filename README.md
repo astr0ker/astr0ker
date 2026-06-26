@@ -1,34 +1,37 @@
-<p align="center">$\color{#292f37}{\textsf{remaking readme soon}}$ $\color{#98d6b6}{\textsf{ (°ー°〃) }}$
+<p align="center">$\color{#2b3729}{\textsf{hey}}$ $\color{#637e60}{\textsf{ : D }}$
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=9d6226&style=flat-square&label=contestants&abbreviated=true" />
+<p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=00c445&style=flat-square&label=contestants&abbreviated=true" />
 
-<p align="center">$\color{#713b14}{\textsf{so i try to laugh about it , cover it all up with lies}}$ 
-<p align="center">$\color{#9d6226}{\textsf{i try to laugh about it}}$ 
-<p align="center">$\color{#431b12}{\textsf{hiding the tears in my eyes , 'cause boys don't cry}}$ 
-<p align="center">$\color{#fee773}{\textsf{boys don't cry ..}}$ 
+<p align="center">$\color{#00b25e}{\textsf{so i try to laugh about it , cover it all up with lies}}$ 
+<p align="center">$\color{#00db45}{\textsf{i try to laugh about it}}$ 
+<p align="center">$\color{#00c445}{\textsf{hiding the tears in my eyes , 'cause boys don't cry}}$ 
+<p align="center">$\color{#007931}{\textsf{boys don't cry ..}}$ 
+
+
+
+<img width="1815" height="1080" alt="image" src="https://github.com/user-attachments/assets/35f789f0-61a6-47b1-a01d-a41025fddcc4" />
+
+
+<p align="center"> $\color{#637e60}{\textsf{there u are, buddy!}}$ $\color{#00db45}{\textsf{ -tree }}$
+
+<p align="center"> $\color{#c6adaa}{\textsf{ru/eng}}$ 
+
+
+<p align="center"> $\color{#e3c0aa}{\textsf{‿”  ehllo im the fucking fan of the object shows👀👀}}$ 
+
+
+<p align="center"> $\color{#816660}{\textsf{c*h⠀, int⠀, dont need 2 ask !!}}$ 
+ 
+
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=you+got+him!;but+you+missed+the+true+tree,+me!&color=007931)](https://git.io/typing-svg)
 
   
-<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/e3d8fe7b-16a4-4b96-870f-e8c84b7f7743" />
-
-
-<p align="center"> $\color{#3e3031}{\textsf{the yaoi become toxic bro🤣so lmao bahaha im so funny}}$
-
-<p align="center"> $\color{#9d6226}{\textsf{ru/eng}}$ 
-
-
-<p align="center"> $\color{#713b14}{\textsf{‿”  ehllo im the fucking fan of the object shows👀👀}}$ 
-
-
-<p align="center"> $\color{#fee773}{\textsf{c*h⠀, int⠀, dont need 2 ask !!}}$ 
-
- 
-<p align="center"> $\color{#431b12}{\textsf{BIG FAN of bloxnoli n noli666 (hjd) , eddtord (eddsworld) , dreamquasis (dreamSMP) , twotag (tpot) n toastyhouse (ORBIT) !!!}}$ 
-
-
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=i+didn't+think+you+needed+to+know;was+i+supposed+to+tell+you?&color=713b14)](https://git.io/typing-svg)
-
-
  ----
 <p align="center"> $\color{#ff4f4e}{\textsf{‿” DNI: proshippers , darkshippers , avid yumeshippers and former friends}}$ 
  
-![Без названия (5)](https://github.com/user-attachments/assets/504c419d-a9bd-4cd1-ab06-668b7367ff98) ![Без названия (6)](https://github.com/user-attachments/assets/956e1139-f90e-4021-8381-8f40eeded12a)
+
+
+
+
+
+
