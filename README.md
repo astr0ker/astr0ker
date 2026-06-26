@@ -2,10 +2,10 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=00c445&style=flat-square&label=contestants&abbreviated=true" />
 
-<p align="center">$\color{#00b25e}{\textsf{so i try to laugh about it , cover it all up with lies}}$ 
-<p align="center">$\color{#00db45}{\textsf{i try to laugh about it}}$ 
-<p align="center">$\color{#00c445}{\textsf{hiding the tears in my eyes , 'cause boys don't cry}}$ 
-<p align="center">$\color{#007931}{\textsf{boys don't cry ..}}$ 
+<p align="center">$\color{#00b25e}{\textsf{it's okay if you exploit me ,}}$ 
+<p align="center">$\color{#00db45}{\textsf{it's okay, i don't}}$ 
+<p align="center">$\color{#00c445}{\textsf{it's okay if you destroy me ,}}$ 
+<p align="center">$\color{#007931}{\textsf{it's okay, i won't .}}$ 
 
 
 
