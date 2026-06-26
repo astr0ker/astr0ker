@@ -20,7 +20,7 @@
 <p align="center"> $\color{#e3c0aa}{\textsf{‿”  ehllo im the fucking fan of the object shows👀👀}}$ 
 
 
-<p align="center"> $\color{#816660}{\textsf{c*h⠀, int⠀, dont need 2 ask !!}}$ 
+<p align="center"> $\color{#816660}{\textsf{c*h , int , dont need 2 ask !!}}$ 
  
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=you+got+him!;but+you+missed+the+true+tree,+me!&color=007931)](https://git.io/typing-svg)
