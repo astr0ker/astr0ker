@@ -30,8 +30,4 @@
 <p align="center"> $\color{#ff4f4e}{\textsf{‿” DNI: proshippers , darkshippers , avid yumeshippers and former friends}}$ 
  
 
-
-
-
-
-
+<img width="498" height="329" alt="07ed2dc07f4fe268b63853fb794feeaa" src="https://github.com/user-attachments/assets/9681191a-1b3c-4872-98f0-ff44b8d1efa6" />
