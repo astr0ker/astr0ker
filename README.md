@@ -2,10 +2,10 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=00c445&style=flat-square&label=contestants&abbreviated=true" />
 
-<p align="center">$\color{#00b25e}{\textsf{it's okay if you exploit me ,}}$ 
-<p align="center">$\color{#00db45}{\textsf{it's okay, i don't}}$ 
-<p align="center">$\color{#00c445}{\textsf{it's okay if you destroy me ,}}$ 
-<p align="center">$\color{#007931}{\textsf{it's okay, i won't .}}$ 
+<p align="center">$\color{#00b25e}{\textsf{let's go in the garden, you'll find something waiting}}$ 
+<p align="center">$\color{#00db45}{\textsf{right there where you left it, lying upside down}}$ 
+<p align="center">$\color{#00c445}{\textsf{when you finally find it, you'll see how it's faded}}$ 
+<p align="center">$\color{#007931}{\textsf{the underside is lighter when you turn it around}}$ 
 
 
 
