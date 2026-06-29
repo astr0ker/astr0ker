@@ -14,7 +14,7 @@
 
 <p align="center"> $\color{#637e60}{\textsf{there u are, buddy!}}$ $\color{#00db45}{\textsf{ -tree }}$
 
-<p align="center"> $\color{#c6adaa}{\textsf{ru/eng}}$ 
+<p align="center"> $\color{#c6adaa}{\textsf{rus/eng}}$ 
 
 
 <p align="center"> $\color{#e3c0aa}{\textsf{‿”  ehllo im the fucking fan of the object shows👀👀}}$ 
