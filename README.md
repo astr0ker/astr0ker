@@ -1,4 +1,4 @@
-<p align="center">$\color{#2b3729}{\textsf{hey}}$ $\color{#637e60}{\textsf{ : D }}$
+<p align="center">$\color{#2b3729}{\textsf{hey}}$ $\color{#637e60}{\textsf{ ; J }}$
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=00c445&style=flat-square&label=contestants&abbreviated=true" />
 
@@ -20,8 +20,8 @@
 <p align="center"> $\color{#e3c0aa}{\textsf{‿”  ehllo im the fucking fan of the object shows👀👀}}$ 
 
 
-<p align="center"> $\color{#816660}{\textsf{c*h , int , dont need 2 ask !!}}$ 
- 
+<p align="center"> $\color{#816660}{\textsf{c+h and int if it's written in my nickname, or if i'm AFK!! if nothing is specified, c+h and the rest of that is not recommended}}$ 
+ <p align="center"> $\color{#2b3729}{\textsf{thanks for understanding}}$ $\color{#637e60}{\textsf{ < : D }}$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=you+got+him!;but+you+missed+the+true+tree,+me!&color=007931)](https://git.io/typing-svg)
 
