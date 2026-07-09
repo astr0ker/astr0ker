@@ -2,17 +2,11 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=00c445&style=flat-square&label=contestants&abbreviated=true" />
 
-<p align="center">$\color{#00b25e}{\textsf{let's go in the garden, you'll find something waiting}}$ 
-<p align="center">$\color{#00db45}{\textsf{right there where you left it, lying upside down}}$ 
-<p align="center">$\color{#00c445}{\textsf{when you finally find it, you'll see how it's faded}}$ 
-<p align="center">$\color{#007931}{\textsf{the underside is lighter when you turn it around}}$ 
-
-
-
 <img width="1815" height="1080" alt="image" src="https://github.com/user-attachments/assets/35f789f0-61a6-47b1-a01d-a41025fddcc4" />
 
-
 <p align="center"> $\color{#637e60}{\textsf{there u are, buddy!}}$ $\color{#00db45}{\textsf{ -tree }}$
+ 
+----
 
 <p align="center"> $\color{#c6adaa}{\textsf{rus/eng}}$ 
 
