@@ -11,7 +11,7 @@
 <p align="center"> $\color{#c6adaa}{\textsf{rus/eng}}$ 
 
 
-<p align="center"> $\color{#e3c0aa}{\textsf{‿”  ehllo im the fucking fan of the object shows👀👀}}$ 
+<p align="center"> $\color{#e3c0aa}{\textsf{‿”  ehllo im a REALLY STUPID object shows fan👀👀}}$ 
 
 
 <p align="center"> $\color{#816660}{\textsf{c+h and int if it's written in my nickname, or if i'm AFK!! if nothing is specified, c+h and the rest of that is not recommended}}$ 
