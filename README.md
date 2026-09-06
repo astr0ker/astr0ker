@@ -1,6 +1,11 @@
 <p align="center">$\color{#2b3729}{\textsf{hey}}$ $\color{#637e60}{\textsf{ ; J }}$
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=00c445&style=flat-square&label=contestants&abbreviated=true" />
+ 
+$\color{#ff4f4e}{\textsf{whoever watchin this DONT VOTE TREE IM BEGGIN U}}$ 
+____
+
+
 
 <img width="1815" height="1080" alt="image" src="https://github.com/user-attachments/assets/35f789f0-61a6-47b1-a01d-a41025fddcc4" />
 
