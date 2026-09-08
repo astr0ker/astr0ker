@@ -2,7 +2,7 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=00c445&style=flat-square&label=contestants&abbreviated=true" />
  
-$\color{#ff4f4e}{\textsf{whoever watchin this DONT VOTE TREE IM BEGGIN U}}$ 
+$\color{#ff4f4e}{\textsf{waahh waAAhh}}$ 
 ____
 
 
