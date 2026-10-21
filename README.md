@@ -1,6 +1,6 @@
-<p align="center">$\color{#2b3729}{\textsf{hey}}$ $\color{#637e60}{\textsf{ ; J }}$
+<p align="center">$\color{#366e7c}{\textsf{hey}}$ $\color{#92bcb2}{\textsf{ ; J }}$
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=366e7c&style=flat-square&label=contestants&abbreviated=true" />
+<p align="center"><img src="https://komarev.com/ghpvc/?username=astr0ker&color=366e7c&style=flat-square&label=spookies&abbreviated=true" />
  
 $\color{#366e7c}{\textsf{i wanNA CHEESEBURgr}}$ 
 
@@ -15,7 +15,7 @@ ____
  
 ----
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=stop+talking+while+you+eat!&color=366e7c)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=stop+talking+while+you+eat!&color=92bcb2)](https://git.io/typing-svg)
 
   
  ----
